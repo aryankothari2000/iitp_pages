@@ -68,3 +68,4 @@
 - https://www.instagram.com/anwesha.iitp/
 - https://www.instagram.com/celestaiitp_official/
 - https://www.instagram.com/yavanika_iitp/
+- https://www.instagram.com/nss_iit_patna/
